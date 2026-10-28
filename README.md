@@ -1,1 +1,0 @@
-# Neet-LIVING-WORLD-QUIZ
